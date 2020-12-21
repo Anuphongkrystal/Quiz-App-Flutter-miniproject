@@ -3,7 +3,3 @@
 
 ## Screenshot
 [Imgur](https://i.imgur.com/kUi8gGr.jpg)
-[Imgur](https://i.imgur.com/HEv2Bxv.png)
-[Imgur](https://i.imgur.com/CEaNeS1.png)
-[Imgur](https://i.imgur.com/nYGPOxJ.png)
-[Imgur](https://i.imgur.com/tpGBe5P.png)
